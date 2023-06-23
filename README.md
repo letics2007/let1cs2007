@@ -11,4 +11,3 @@ Meu nome é Leticia Carolina Siepmann
 siepmanncarolina@gmail.com 
 
 hscaroll_ :para redes sociais
-![https://tenor.com/bJ9Bc.gif]
